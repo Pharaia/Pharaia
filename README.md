@@ -10,7 +10,7 @@ Hi there! I'm an student with a love for turning lines of code into meaningful s
 - 👯 I’m looking to collaborate with myself.
 - 🤔 I’m looking for help with socializing.
 - 💬 Ask me about How I like being alone.
-- 📫 How to reach me from text?
+- 📫 How to reach me. You don't.
 - 😄 Pronouns? Go back and learn 1st grader english.
 - ⚡ Fun fact: I hate people. Specially the loud ones.
 
