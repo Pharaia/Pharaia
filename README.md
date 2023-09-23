@@ -13,5 +13,6 @@ Hi there! I'm a student with a love for turning lines of code into meaningful so
 - 😄 Pronouns? Go back and learn 1st grader English.
 - ⚡ Fun fact: I prefer a quieter environment.
 
+### Social Links:
   -[YouTube](https://youtube.com/@Pharaia?si=BZk-ncD_J4cJ5sY9) My Channel
 
