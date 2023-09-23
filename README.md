@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+![Your profile image](https://github.com/Pharaia/Pharaia/blob/main/vibes.png?raw=true)
+
 <!--
 **Pharaia/Pharaia** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
